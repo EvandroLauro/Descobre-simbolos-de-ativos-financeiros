@@ -1,0 +1,1 @@
+# Descobre-simbolos-de-ativos-financeiros
